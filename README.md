@@ -1,2 +1,6 @@
 # fontawesomeicons
-Only for Education Use not for Commercial Use
+This From Awesome Pro Icons Respiratory is Only Meant for Private Use .
+Please Do Not Use It For Commercial Use…
+For Commercial Use Please Buy a Font Awesome Pro Kit or Use Official Font Awesome Free Kit.
+
+You Will Get All Font Awesome Pro Icons using this Respiratory free Of Cost ………
